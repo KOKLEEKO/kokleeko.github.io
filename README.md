@@ -1,3 +1,3 @@
 # KOKLEƎKO
 
-🏗 Blog under development
+🏗 Blog under development.
