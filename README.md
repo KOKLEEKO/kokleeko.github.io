@@ -1,3 +1,3 @@
-# Kokleeko S.L.
+# KOKLEƎKO
 
-🏗 Page under development
+🏗 Blog under development
